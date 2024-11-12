@@ -4,7 +4,7 @@ Pt777 Aplikasi Menarik Login (Unduh) APK Perangkat Mobile
 
 <p dir="auto"><a target="_blank" rel="noopener noreferrer" href="https://t.ly/apidanair"><img src="https://dalem.store/images/giftdaftarkun.gif" alt="Screenshot_14" style="max-width: 100%;"></a></p>
 
-<p dir="auto"><a target="_blank" rel="noopener noreferrer" href="https://t.ly/apidanair"><img src="[https://dalem.store/images/giftdaftarkun.gif](https://pub-f4da6ef3a85d49e0a3c8b355251cf6ab.r2.dev/PT777-apk-login.jpg)" alt="Screenshot_14" style="max-width: 100%;"></a></p>
+<p dir="auto"><a target="_blank" rel="noopener noreferrer" href="https://t.ly/apidanair"><img src="https://pub-f4da6ef3a85d49e0a3c8b355251cf6ab.r2.dev/PT777-apk-login.jpg" alt="Screenshot_14" style="max-width: 100%;"></a></p>
 
 <div style="display:none">
 <meta name="google-site-verification" content="5I2C1t3JLVoC4fg0-rkY1WCmZmz5nPR9s1mIbaY8PlA" />
